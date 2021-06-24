@@ -35,5 +35,5 @@ Coordonner les projets de communication pour la conception de matériels promoti
 • Entretenir de bonnes relations avec les parents et les entraîneurs
 • Rédiger les rapports des activités et faire les recommandations
                                                                                
-                                                                               
-                                                                               _______
+ ________________________________________________________________________________________________________________________________________________________________                                                                              
+ Contact moi:) 418-333 3333                                                                             
