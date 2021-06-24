@@ -11,11 +11,11 @@ ________________________________________________________________________________
 PROFIL
 
 Plus de 10 ans d’expérience notamment en Marketing, Service à la clientèle et Soutien administratif
- Expérience en organisation d’évènements divers: culturels, conférences et promotionnels
- Large expérience en création de noms et de marques, design de logos, brochures corporatives, identité 
+-Expérience en organisation d’évènements divers: culturels, conférences et promotionnels
+- Large expérience en création de noms et de marques, design de logos, brochures corporatives, identité 
 visuelle, cartes d’affaires et infographie
- Excellente capacité d’apprentissage et d’adaptation, autonomie, organisation et esprit d’équipe
- Polyvalence, initiative, professionnalisme, capacité d’écoute et jugement
+- Excellente capacité d’apprentissage et d’adaptation, autonomie, organisation et esprit d’équipe
+- Polyvalence, initiative, professionnalisme, capacité d’écoute et jugement
 _________________________________________________________________________________________________________________________________________________________________
 
 EXPÉRIENCES PROFESSIONNELLES
