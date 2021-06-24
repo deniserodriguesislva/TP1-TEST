@@ -1,7 +1,4 @@
-# TP1-TEST
-TP1 
 
- "IMAGE" 4077c7e#diff-257e8648529d7f1f79583551e13b53c4643727510401f77d49a7d0b1fedb00ef
 
 Bonjour!
 Je suis Denise      
